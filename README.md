@@ -1,1 +1,1 @@
-# studygroup
+# study group
